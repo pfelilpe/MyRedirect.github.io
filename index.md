@@ -1,1 +1,1 @@
-## Welcome to The TAKE OVER :)
+## You have been redirected :)
